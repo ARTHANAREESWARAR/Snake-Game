@@ -54,7 +54,8 @@
 
 𝐒𝐜𝐫𝐞𝐞𝐧𝐬𝐡𝐨𝐭𝐬
 
-      ![Screenshot 2024-09-21 130516](https://github.com/user-attachments/assets/adc8dc68-ee50-4eab-b5fc-9feac0490412)
+      ![Screenshot 2024-09-21 130516](https://github.com/user-attachments/assets/4337cc52-b562-4d75-be1b-b30d73061272)
+
 
 𝐋𝐢𝐯𝐞 𝐃𝐞𝐦𝐨
 
